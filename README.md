@@ -165,4 +165,4 @@ I am especially interested in building at the intersection of:
 
 ## Contact
 
-LinkedIn: [Add your LinkedIn here]
+LinkedIn: https://www.linkedin.com/in/joselyn-pinto-136391114/
